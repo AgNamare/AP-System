@@ -2,3 +2,6 @@
 Project done by Group 9 and 10
 
 Precious Ndulu
+
+Mercy Gitonga
+
